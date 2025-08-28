@@ -1,0 +1,1 @@
+# advertica.ads
